@@ -19,8 +19,7 @@
 
 ─── ･ ｡ﾟ☆: *.☽ .* :☆ﾟ. ───
 
-
-            Reaper
+Reaper
 
 It/They He/They | AROMANTIC OMNISEXUAL | 18 |
              
