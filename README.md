@@ -44,7 +44,7 @@ iTrapped(MM12)
 - Source: Roblox, May Madness 2012
 - Quote?: _𝔻𝕠 𝕪𝕠𝕦 𝕥𝕙𝕚𝕟𝕜 𝕪𝕠𝕦'𝕣𝕖 𝕣𝕖𝕒𝕕𝕪 𝕨𝕙𝕖𝕟 𝕀 𝕘𝕠 𝕦𝕟𝕤𝕥𝕖𝕒𝕕𝕪? 𝕃𝕠𝕧𝕖𝕣, 𝕡𝕝𝕖𝕒𝕤𝕖 𝕡𝕣𝕖𝕡𝕒𝕣𝕖 𝕗𝕠𝕣 𝕞𝕪 𝕒𝕓𝕤𝕖𝕟𝕔𝕖.._
 - Personality: ESTJ 
-- Likes: Ironically likes cold weather, @i7Trapped(We're aware it won't ping, but check em out)
+- Likes: Ironically likes cold weather,Gambling, Spending excessive amounts of cash, spoiling their friends and themselves, @i7Trapped(We're aware it won't ping, but check em out)
 - Dislikes: Rough textures in food and clothing, tremors, and being left alone for extended periods of time.
 > [!WARNING]
 > ![itrapped-forsaken](https://github.com/user-attachments/assets/2dec0c0f-3bd9-43aa-bc5b-01d301174491)
