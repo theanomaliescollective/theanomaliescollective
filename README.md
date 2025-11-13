@@ -88,6 +88,7 @@ He/Him | Gay | 22..? |
 - Personality: ISFJ
 - Likes: Talking to Ivan, sleeping, calm areas
 - Dislikes: Being forced into front (gives a headache for everyone)
-<img width="171" height="129" alt="image" src="https://github.com/user-attachments/assets/e4772058-cc62-4db7-9cbc-231a93eb3932" />
+> [!WARNING]
+> <img width="171" height="129" alt="image" src="https://github.com/user-attachments/assets/e4772058-cc62-4db7-9cbc-231a93eb3932" />
 
 ───⋆⋅•⋅⊰∙∘⋆ ❆ ⋆∘∙⊱⋅•⋅⋆ ───
