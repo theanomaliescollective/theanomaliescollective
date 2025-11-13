@@ -34,7 +34,7 @@ It/They He/They | AROMANTIC OMNISEXUAL | 18 |
 > [!WARNING]
 > ![plague-doc-walk-dance](https://github.com/user-attachments/assets/56b4906d-b7ed-4edd-a124-40754592d9cb)
 
-───༘⋆ ❅ ･:*:｡ ❆ ───
+*̩̩͙‧͙•̩̩͙┈┈・｡˚₊ ❆ ｡˚₊・┈┈‧͙ •̩̩͙‧͙*̩̩͙ 
 
 iTrapped(MM12)
 
