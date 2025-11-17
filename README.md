@@ -1,20 +1,20 @@
-.𖥔 ܁ ˖🛸── .✦
+.𖥔 ܁ ˖!── .✦
 
  .　•　★　*　　　　　°　　.　　🛰 　°·　　•.     
 
 ─── ･ ｡ﾟ☆: *.☽ .* :☆ﾟ. ───
 
-🛸　.　　•.  　🌎　°　.•　🌓　•　　.°•　　•　🚀  
+🍔　.　　•.  　🚬　°　.•　🟥　•　　.°•　　•　🫀  
 
-GNARPY!! :D 
+007n7
 
-xey/xim/xir | i zont care about a relationzhip | zuh. uh. uh. no age? <img width="30" height="30" alt="image-removebg-preview" src="https://github.com/user-attachments/assets/71eed55a-924a-47ee-ad0b-6827a826de5f" />  
-- role: fictive
-- source: regretevator
-- personality: zuper c00lieo truzt -
-- likes: outerzpace, talking to lampert, bive, and pilby
-- dislikes: **Mach.**
-- partner(s): i dont have one ;m;
+He / They / It | Not looking. | ...I forgot.
+- role: Fictive.
+- source: Forsaken.
+- personality: INFJ -
+- likes: Hacking, talking to CK, Drawing.
+- dislikes: **A lot. Too much to list.**
+- partner(s): Again, not looking.
 
 ─── ･ ｡ﾟ☆: *.☽ .* :☆ﾟ. ───
 
