@@ -8,7 +8,7 @@
 
 007n7
 
-He / They / It | Not looking. | ...I forgot.
+He / They / It | Not looking. | Partially inactive, PT account
 - role: Fictive.
 - source: Forsaken.
 - personality: INFJ -
